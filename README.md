@@ -6,10 +6,4 @@ download the neccessary modules
 
 ***** LEAVE A COMMENT IF YOU LOVED OUR WORK *****
 
-
-***** FOR MORE PROJECTS :- https://code-projects.org/ *****
-
-
-
-
 THANK YOU FOR DOWNLOADING :) 
